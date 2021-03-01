@@ -1,1 +1,3 @@
-# mensen-met-bijstandsuitkering-financieel-afbranden-tot-de-dood-erop-volgt
+----------------------------------------------------------------------------
+| burgers-financieel-afbranden-in-de-sociale-dienst-tot-de-dood-erop-volgt |
+----------------------------------------------------------------------------
